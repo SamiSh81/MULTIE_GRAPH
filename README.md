@@ -1,4 +1,4 @@
-http/githuub/SamiSh81/MULTIE_GRAPH
+https:/githuub.com/SamiSh81/MULTIE_GRAPH
 
 ausamashahmanin@gmail.com
 
